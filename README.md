@@ -2,4 +2,4 @@
 
 ō͡≡o˞ Meu nome é João Pedro, vim do Colégio Estadual Idália Rocha, Ivaiporã  ō͡≡o˞
 
-🚗🏎 Fã do Cassio 🏎🚗
+🚗🏎 Fã do Cassio, torcedor do Corinthians🏎🚗
